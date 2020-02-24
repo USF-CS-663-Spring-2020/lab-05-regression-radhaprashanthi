@@ -1,4 +1,4 @@
 # readme.md
 
-**Name**:  
-**USF email address**:  
+**Name**: Radha Prashanthi Aakula Chinna  
+**USF email address**: raakulachinna@usfca.dons.edu  
